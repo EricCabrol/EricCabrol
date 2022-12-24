@@ -1,5 +1,5 @@
 
-Mechanical engineer with more than 20 years of experience in CAE in the automotive industry. I have worked during the five past years on simulation of vehicle dynamics and ADAS, and I have very recently switched to a new experience in robotics. 
+Mechanical engineer with more than 20 years of experience in CAE in the automotive industry. I have worked between 2015 and 2022 on simulation of vehicle dynamics and ADAS, and I have very recently switched to a new experience in robotics. 
 
 Identified by my friends and family as a petrolhead (2 and 4 wheels), I enjoy learning new things, building up and sharing knowledge, solving problems, establishing links between disciplines, confronting simulations and test results.
 
